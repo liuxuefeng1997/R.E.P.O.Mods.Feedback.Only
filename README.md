@@ -1,2 +1,3 @@
 # R.E.P.O.Mods.Feedback.Only
-R.E.P.O.模组反馈专用
+
+[QQ群](https://qm.qq.com/q/ByTI7xO9Da)
